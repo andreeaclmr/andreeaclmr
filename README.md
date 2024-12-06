@@ -1,5 +1,5 @@
 ## Hi, I’m Andreea and I love organising the chaos. 💛
-I love organizing the chaos, solving problems creatively, and bringing teams together to deliver great results.
+solving problems creatively, bringing teams together to deliver great results
 
 
 <!--
