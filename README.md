@@ -1,4 +1,6 @@
-## Hi there 👋
+## Hi, I’m Andreea and I love organising the chaos. 💛
+I love organizing the chaos, solving problems creatively, and bringing teams together to deliver great results.
+
 
 <!--
 **andreeaclmr/andreeaclmr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
